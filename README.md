@@ -2,27 +2,9 @@
 cần kt math 
 học code đơn giản 
 toán logic, toán cao cấp
-f gfgdfdg fdgbfdgbfg gfgb fg fdg fgb
-fgy gf nhgfhnfghn fghn fghn fghnfghngfh 
-gfh fghnmghn fghgjm hnm fghn gfhn fghn fghnghf
-fdtg bfdgb fdgb dfgb fdgb dfgb dfgb sdv sd vsdvsds 
-f gbfgnb dfgnbdfgnb dfgnfdgn fdgndfgndfgnsd vds v
-sd vsdv sdv  fdgnfdgn ghfn ghjmhgjmhgmjsd vsdv sdv
-sdcsdcsdc sdc sd sdc sd csd csdc sdcsdcdsc sdc sdc dsc sdc ds
-sdcsdc sdc sdc sd cđscs dcsdc sdcds cdsc sdc csd dscsdc
-sd csdc sdc sdc sdcsd csdc dscsd csdc sdcds csdc s
-df vdfv df vdf vdfv dfv dsd vsdv sdv sdv sdv
-fv dfv dfv dfv dfv dfv dfv dfv dfv dfv dsdvsd vsd 
-sdv sdv s fdv dfv dfv dfv dfv dfv dfv dfv dfv df
-sd vsdv v dfvdfv dfv dfvdfvdfv dfv dfv df dfv dfv dfv dfv d
-sd vsdv   dfvdfvdfv dfv dfv dfv dfv dfv dfv dfv dfv
-sd vsdv sdv sdv sdv sdv sdv d sdv sdv sdv sdv sdv 
-sdfgsd vadsfvsdfvsd fvsdfvsdvsd vfsdv sdvsd vsd
-ds vsdf vsdv sdv sdvf vsdv sd vsdv
- brtbrbr  sv sdv sv sdv s vsv sv sv
-sadcsdc sdc ds sdc sdvdfv dfdfv df vdf
-dfvd fv dfv dfvdv dfv dfv
-dfv dfv dfv dfvdfvd fvdfv df
- dfv dfvdfv dfv dfv dfv dfv dfv dfv d
-  dfv df vdfv dfv dvdfv dfv dfvdfv dfv
-   dfv dfv dfv dfv dfvdfv dfv dfv df df df 
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  sdv sdv sdv sd
